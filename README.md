@@ -8,9 +8,9 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/John-Prabu-A](https://github.com/John-Prabu-A)
 
-- 📄 Know about my experiences [https://github.com/John-Prabu-A/John-Prabu-A/blob/main/Resume.pdf](https://github.com/John-Prabu-A/John-Prabu-A/blob/main/Resume.pdf)
+- 📄 Know about my experiences [https://linkedin.com/in/johnprabu](https://linkedin.com/in/johnprabu)
 
-- 📫 How to reach me **johnprabu2005@gmail.com**
+- 📫 How to reach me **johnprabu0702@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
